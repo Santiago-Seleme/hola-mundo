@@ -2,4 +2,4 @@
 
 Mi primer repositorio
 
-Me gustan las pelis de spiderman ^u^
+Me gustan las pelis de spiderman 😎, me gustan los videojuegos
